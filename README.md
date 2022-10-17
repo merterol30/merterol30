@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mert Erol
+- 👀 I’m interested in game development
+- 🌱 I’m currently studying on Beykoz University
+- 💞️ I’m looking to collaborate on character design
+- 📫 How to reach me merterol938@gmail.com
